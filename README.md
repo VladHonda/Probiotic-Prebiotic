@@ -1,2 +1,0 @@
-# Probiotic-Prebiotic
-Probiotic Prebiotic
